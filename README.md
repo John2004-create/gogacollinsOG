@@ -1,1 +1,5 @@
-# gogacollinsOG
+Goga John  SST/B/01-02369/2022
+Omare Collins SMT/B/01-03316/2022
+Odira Steve   SST/B/01-55234/2022
+Rodgers Juma  SMT/B/01-02919/2021
+Wasike Brian  SST/B/01-02360/2022
